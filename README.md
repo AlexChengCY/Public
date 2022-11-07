@@ -1,1 +1,1 @@
-## Just feel free to view the codes!
+## Thanks for browsing my side projects
